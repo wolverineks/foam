@@ -1,0 +1,1 @@
+- 90 minutes max in any one position
